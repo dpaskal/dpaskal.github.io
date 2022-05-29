@@ -1,1 +1,0 @@
-# dpaskal.github.io
